@@ -1,5 +1,4 @@
 ![congapartyparrot](https://github.com/user-attachments/assets/13daacb1-fa05-49df-b744-6042c0a10d26) - 👋 Hi, I’m @DaRkHeArTz.
-- 👋 Hi, I’m @DaRkHeArTz. 
 - 👀 I’m interested in everything. 
 - 🌱 I’m currently learning Klingon. 
 - 💞️ I’m looking to collaborate on World Domination. 
