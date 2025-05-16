@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on World Domination. 
 - 📫 How to reach me, turn around... Boo 😜
 
-![partyparrot](https://github.com/user-attachments/assets/0c08d080-99ac-4f40-8e56-c0df8dbc1514)
+![congapartyparrot](https://github.com/user-attachments/assets/13daacb1-fa05-49df-b744-6042c0a10d26)
 
 <!---
 DaRkZ2012/DaRkZ2012 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
