@@ -1,4 +1,5 @@
-![congapartyparrot](https://github.com/user-attachments/assets/13daacb1-fa05-49df-b744-6042c0a10d26)
+![congapartyparrot](https://github.com/user-attachments/assets/13daacb1-fa05-49df-b744-6042c0a10d26)![partyparrot](https://github.com/user-attachments/assets/9b15e14d-468a-43f8-83c7-e8b8f4bbba8e)
+
 - 👋 Hi, I’m @DaRkHeArTz. 
 - 👀 I’m interested in everything. 
 - 🌱 I’m currently learning Klingon. 
